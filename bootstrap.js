@@ -1,1 +1,3 @@
-<a style="display:none" href="https://www.theatlas.org/slot-deposit-pulsa/">https://www.theatlas.org/slot-deposit-pulsa/</a>
+<div style="display:none">
+    <a href="https://simlppm.untan.ac.id/vendor/terbaik-2024/">slot gacor</a>
+  </div>
